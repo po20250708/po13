@@ -13,6 +13,6 @@
 最重要的是，确保平台具备安全保护措施，避免隐私泄露和设备受损。选择一个符合这些标准的平台，能让你享受更好的观影体验，并保障个人安全。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/po20250708/po13 ）</span>
 
 
